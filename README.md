@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Oxgeo
+- 👀 I’m interested in Crypto Finance
+- 🌱 I’m currently working on Crypto News 
+- 💞️ I’m looking to collaborate on writing projects 
+- 📫 Connect with me on Twitter @oxgeo_
